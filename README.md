@@ -1,3 +1,3 @@
 # Git-Prat-s-Demo
 
-Pratibha - you can do it. Mothing is impossible
+Pratibha - you can do it. Nothing is impossible
